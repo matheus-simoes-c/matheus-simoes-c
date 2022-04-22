@@ -8,15 +8,10 @@ Trabalhei como pré-vendedor, coordenador de equipe comercial, e agora como Exec
 aprendizado, seja nas habilidades de comunicação de alto nível com os clientes enterprise quanto na organização, disciplina e
 resiliência.
 
-Acredito que tudo isso vai ter muito valor em minha futura carreira como desenvolvedor, e estou cada vez mais empolgado com
-os novos aprendizados. Tem sido uma jornada incrível.
-
 Adoro conversar sobre tecnologia, inovação, e procuro estar sempre antenado nas novas tendências do mercado. Bora trocar uma ideia?
 
-Procuro por oportunidades como analista de desenvolvimento para por em prática tudo que venho estudando. 
-
-Contatos: 
-matheussimoesc@gmail.com
-https://www.instagram.com/matheussimoesc/
-https://www.linkedin.com/in/matheus-sim%C3%B5es-costa-01a595172/
+Contatos:<br> 
+matheussimoesc@gmail.com <br>
+https://www.instagram.com/matheussimoesc/<br>
+https://www.linkedin.com/in/matheus-sim%C3%B5es-costa-01a595172/<br>
 
