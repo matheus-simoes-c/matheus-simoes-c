@@ -1,6 +1,6 @@
 Me chamo Matheus Simões Costa, e no início de 2022 decidi que iria me tornar um desenvolvedor!
 
-Tenho 24 anos, e atualmente trabalho em uma fintech como Executivo de Contas (Vendedor com nome chique kkk).
+Tenho 24 anos, e atualmente trabalho em uma fintech como Executivo de Contas.
 
 Comecei a trabalhar bem cedo, e desde então estive sempre em atividades voltadas pra área comercial. 
 
